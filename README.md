@@ -1,1 +1,1 @@
-# improved-doodle
+# GRIP-The Sparks Foundation
